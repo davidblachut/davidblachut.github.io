@@ -1,1 +1,0 @@
-# davidblachut.github.io
